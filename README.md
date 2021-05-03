@@ -5,9 +5,10 @@
 - 📫 How to reach me ...
 email- vedika17bhoite@gmail.com
 instagram - @vedikabhoitee
-Linkedin - 
+Linkedin - vedika bhoite
 Twitter- vedsss____
 
+~trying to excel~
 
 <!---
 vedika17bhoite/vedika17bhoite is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
